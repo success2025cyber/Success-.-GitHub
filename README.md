@@ -33,9 +33,9 @@ I’m learning, building, and growing as a developer. Every commit is a step for
 ---
 
 ## 🤝 Connect with Me  
-- 🌐 [LinkedIn](https://linkedin.com/in/YOURUSERNAME)  
+- 🌐 [LinkedIn](https://linkedin success chikaodi.com)  
 - 📸 [Instagram](https://instagram.com/sucCess)  
-- 🐙 [GitHub](https://github.com/)
+- 🐙 [GitHub](https://github success cyber-pat.com/)
 
 
 
